@@ -19,7 +19,7 @@
 - Seguir practicando todos los días y construyendo un portfolio profesional
 
 📫 Cómo contactarme:
-- Email: leosaabok@hotmail.com
+- Email: leosaab619@gmail.com
 - LinkedIn: https://www.linkedin.com/in/leonel-saab-0a7682321/
 
 ⚡ Dato curioso:
